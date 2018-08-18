@@ -1,3 +1,5 @@
+<meta name="360-site-verification" content="07c5cb0762992101360b559dd1421dab" />  
+
 # **如水稀有积分卡查看**
 
 ###### *by cyh22*
